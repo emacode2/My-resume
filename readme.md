@@ -1,1 +1,1 @@
-Resume short list skills
+Resume short list; skills and contact information.
